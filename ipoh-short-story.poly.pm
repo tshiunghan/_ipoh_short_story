@@ -1,16 +1,18 @@
 #lang pollen
 
-◊heading{Ipoh Short Story}
+◊heading{Ipoh Parade}
 
-I was driving around the parking lot, looking for a place to park. But there were no parking spaces. I swore at myself for entering the parking lot on Basement 1. I should have entered on Basement 2. The line of cars in front of me slowly worked its way down to the lower levels. The line of cars behind me extended further than I could see. The queue would stop for a long time, every once in a while. I would stretch my neck to look for the source of the obstruction, but it would never be visible. 
+There was no place to park. I swore at myself for leaving the office late. The line of cars in front of me slowly worked its way down to the lower levels. The line of cars behind me extended further than I could see. A human centipede of cars. 
 
-Every once in a while, someone would walk by my car and I would get excited. Maybe that person had parked in a lot adjacent to me. But the person would walk perpendicular to me, into the next row of cars. I would swore at myself when this happened. 
+The queue would stop for a long time, every once in a while. I would stretch my neck to look for the source of the obstruction, but I would never see it. 
+
+Every once in a while, someone would walk by my car and I would get excited. Maybe that person had parked near me. But the person would walk into the next row of cars. I would swear at myself when this happened. 
 
 I dialed Andrew, to tell him I would be late. He didn't pick up, and the call went to his voicemail. I hung up and wrote him a text.
 
-There was parking on Basement 2. I parked near the escalator. I took off my driving shoes and put on my walking shoes. 
+There was parking on Basement 2. I parked near the escalator. I took off my driving shoes and put on my walking shoes. I decided to leave my office heels in the car.
 
-Getting out of my car, I could hear a cat meowing. I was meowing a lot. Maybe it wants water or food. Maybe it's scared. I looked for it, but I was late for lunch. Anyways, if I found it, there's nothing I could do for it. I didn't have any cat food in my car. I didn't have any water. And I probably couldn't bring a cat into the shopping mall. Could I? I seriously considered it for a few seconds, but I ruled that it would be a bad idea. 
+Getting out of the car, I could hear a cat meowing. It was meowing a lot. Maybe it wants water or food. Maybe it's scared. I looked for it, but I was late. Anyways, if I found it, there's nothing I could do for it. I didn't have any cat food in my car. I didn't have any water. And I probably couldn't bring a cat into the shopping mall. Could I? I seriously considered it for a few seconds, but I ruled that it would be a bad idea. 
 
 I swore at myself and headed into the shopping mall.
 
@@ -40,7 +42,7 @@ I didn't say anything.
 
 I took out my phone as well and opened Facebook.
 
-My cousin got married a few weeks ago, but she had gone through the photos yesterday. The photo at the top of the feed was her kissing her husband, who looked surprised. Her face was in profile and her husband's was facing the camera.
+My cousin got married a few weeks ago, but she had gone through the photos yesterday. The photo at the top of the feed was her kissing her husband. Her face was in profile and her husband's was facing the camera.
 
 I rolled my eyes and switched to Gmail. Client had emailed about latest draft of the annual report. It was a long email. I skimmed it and decided to wait until I was back in the office. Then I put my phone to sleep.
 
@@ -48,7 +50,7 @@ Andrew was looking at me.
 
 "Annie, I need a sign from you," he said.
 
-I was quiet.
+I blinked.
 
 "Something," he said.
 
@@ -64,7 +66,7 @@ He paused.
 
 "Tell me where you want to be in five years."
 
-I raised me eyes to meet his.
+I raised my eyes to meet his.
 
 "I can't," I said.
 
@@ -74,13 +76,15 @@ I raised me eyes to meet his.
 
 "I... look..." he began.
 
+We looked at each other for a moment. The food arrived and we began to eat.
+
 "Do you know where you want to be in five years?" I said.
 
 "I do," he said.
 
 "Where?" I said.
 
-"I want to be with you. I want to be married to you, have a kid, maybe? Do you want to have a kid? I think we would be good parents. I think we could raise a kid really well."
+"I want to be with you. I want to be married to you. Have a kid, maybe? Do you want to have a kid? I think we would be good parents. I think we could raise a kid really well."
 
 "You don't know until you do it," I said.
 
@@ -88,7 +92,7 @@ I raised me eyes to meet his.
 
 "God," I said, rolling my eyes.
 
-I took a sip of my tea. It was tepid. 
+I took a sip of my iced tea. It was indeed iced.
 
 Andrew asked for the check.
 
@@ -118,7 +122,7 @@ I said, "I used to know what it means to know. I know two plus two equals four. 
 
 He was quiet.
 
-"Two plus two does not always equal four. It equals one or two or three sometimes. I think at one time I had to choose what it means and I made the same choice everyone else makes.
+"Two plus two does not always equal four. It equals one or two or three, sometimes. I think one day I had to choose what it means and I made the same choice everyone else makes.
 
 "Baby..." he said.
 
@@ -128,7 +132,7 @@ I paused.
 
 "Do you know what I mean?"
 
-He was looking at me as if he didn't know me. 
+He was looking at me as if he didn't know what I mean. 
 
 "It's ok," I said, "it's ok."
 
