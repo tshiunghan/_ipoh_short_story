@@ -18,19 +18,19 @@ Getting out of the car, I could hear a cat meowing. It was meowing a lot. Maybe 
 
 I swore at myself and walked into the shopping mall.
 
-Andrew was leaning against a wall near Coffee Bean. He was vaping, but as I approached him someone asked him to stop. He made a violent gesture. The person walked away, looking at him as he did so. 
+Andrew was leaning against a wall near Coffee Bean, vaping. As I approached him someone walked up to him and asked him to stop. He made a violent gesture. The person walked away, looking at Andrew as he did so. 
 
 I waved at him. He waved back.
 
 "What was that all about?" I said.
 
-"Nothing," he said, "You hungry?"
+"Nothing," he said, innocently, "you hungry?"
 
-I nodded.
+I nodded, filing that incident in my head under "red flags."
 
 Nando's was semi-crowded, but we managed to get a booth. I ordered lemon and herb. He ordered extra hot. 
 
-"My umbrella broke yesterday," he said.
+"My umbrella broke yesterday," he said, as we waited for the food.
 
 "Yah," I said, "I see the way you treat it."
 
@@ -42,13 +42,13 @@ I didn't say anything.
 
 "I left the office early," he said, taking out his phone.
 
-I took out my phone as well and opened Facebook.
+I took out my phone and opened Facebook.
 
-My cousin got married a few weeks ago, but she had gone through the photos yesterday. The photo at the top of the feed was her kissing her husband. Her face was in profile and her husband's was facing the camera.
+My cousin got married a few weeks ago, but she had only gone through the photos yesterday. The photo at the top of my feed was of her kissing her husband. Her face was in profile and her husband's was facing the camera. Her husband's face was saying, "Oh no!"
 
-I rolled my eyes and switched to Gmail. Client had emailed about latest draft of the annual report. It was a long email. I skimmed it and decided to wait until I was back in the office. Then I put my phone to sleep.
+I rolled my eyes and switched to Gmail. Client had emailed about latest draft of annual report. It was a long email. I skimmed it for anything demanding immediate attention and, finding nothing, decided to wait until I was back in the office to reply. Then I put my phone to sleep.
 
-Andrew was looking at me.
+Andrew was looking at me. I don't know how long he had been looking at me.
 
 "Annie, I need a sign from you," he said.
 
@@ -74,7 +74,7 @@ I raised my eyes to meet his.
 
 "You can't?" he said.
 
-"Please don't ask me again," I said.
+"Please don't ask me again," I said, growling.
 
 "I... look..." he began.
 
