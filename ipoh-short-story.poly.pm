@@ -2,19 +2,21 @@
 
 ◊heading{Ipoh Parade}
 
-There was no place to park. I swore at myself for leaving the office late. The line of cars in front of me slowly worked its way down to the lower levels. The line of cars behind me extended further than I could see. A human centipede of cars. 
+There was no place to park. I swore at myself for leaving the office late. The line of cars in front of me slowly worked its way down to the lower levels of the parking lot. The line of cars behind me extended further than I could see. 
 
 The queue would stop for a long time, every once in a while. I would stretch my neck to look for the source of the obstruction, but I would never see it. 
 
-Every once in a while, someone would walk by my car and I would get excited. Maybe that person had parked near me. But the person would walk into the next row of cars. I would swear at myself when this happened. 
+Someone would walk by my car and I would get excited. I would think, maybe that person had parked near me, and I could take his spot. But the person would walk into the next row of cars. He had walked slow enough to get my hopes up. I would swear at myself when this happened. 
 
-I dialed Andrew, to tell him I would be late. He didn't pick up, and the call went to his voicemail. I hung up and wrote him a text.
+I dialed Andrew, to tell him I would be late. He didn't pick up, and the call went to voicemail. I hung up and texted him "late."
 
-There was parking on Basement 2. I parked near the escalator. I took off my driving shoes and put on my walking shoes. I decided to leave my office heels in the car.
+There was ample parking on Basement 2. What was all the fuss about? I aimed for a parking space near the escalator, then I changed my mind and parked near the staircase. Another car didn't like my indecisiveness and horned me. I whipped my head around and gave him the evil eye. 
+
+In the rearview mirror, I checked my makeup. Still immaculate, for a 7am rush job. I took off my driving shoes and put on my walking shoes. I decided to leave my office heels in the car.
 
 Getting out of the car, I could hear a cat meowing. It was meowing a lot. Maybe it wants water or food. Maybe it's scared. I looked for it, but I was late. Anyways, if I found it, there's nothing I could do for it. I didn't have any cat food in my car. I didn't have any water. And I probably couldn't bring a cat into the shopping mall. Could I? I seriously considered it for a few seconds, but I ruled that it would be a bad idea. 
 
-I swore at myself and headed into the shopping mall.
+I swore at myself and walked into the shopping mall.
 
 Andrew was leaning against a wall near Coffee Bean. He was vaping, but as I approached him someone asked him to stop. He made a violent gesture. The person walked away, looking at him as he did so. 
 
